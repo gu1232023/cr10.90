@@ -8,3 +8,5 @@ Meu nome é Gustavo Soares, Moro em Crueiro do Iguaçu PR
 
 
   https://media.tenor.com/T8xYwP8lKN4AAAAC/homer-simpson.gif
+
+https://gifs.eco.br/wp-content/uploads/2022/06/gifs-de-among-us-0.gif
